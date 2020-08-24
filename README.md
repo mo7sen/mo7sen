@@ -1,4 +1,4 @@
-### Greetings, stranger. I'm Robear - aka mo7sener (or Sisyphus).
+### Greetings, Adventurer. I'm Robear - aka mo7sener (or Sisyphus).
 
 I can't think of anything to write. So maybe later?
 
